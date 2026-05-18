@@ -1,4 +1,4 @@
-# 
+# VIP Vegas Pro for PC scripts is the best Vegas Pro for PC scripts with green-screen and 4K-export. Safe, reliable, and optimized for maximum performance.
 
 
 
